@@ -1,6 +1,10 @@
 RATIOOOOO
 NOUVELLE ALPINE A310 1976 Rallye Monte Carlo
 Ca m'a coûté 80€
+VIVE LA SOGE
+VIVE LA THUNE
+TRAVAILLER AU LUXEMBOURG BE LIKE
+Tu t'es fait scam
 
 Tu t'es fait scam
 
