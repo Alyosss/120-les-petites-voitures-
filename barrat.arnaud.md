@@ -9,9 +9,8 @@ Tu t'es fait scam
 Tu t'es fait scam
 
 VIVE LA SOGE
-VIVE LA THUNE
-TRAVAILLER AU LUXEMBOURG BE LIKE
-
+VIVE LA THUNE la grande apine de barrat,   Âqskoqlksjdazoelqsjdo
+TRAVAILLER AU LUXEMBOURG BE LIKE gingembre
 Tu t'es fait scam
 
 C'est moi qui te scam 
